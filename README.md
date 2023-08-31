@@ -10,5 +10,5 @@ I Also Like Posting Custom Minecraft Templates Of My Addons As Well.
 (For People Using My Stuff. I Dont Care If Your Credit Me Or Not In Your Addons)
 Signing Out, Gamerelk
 
-Contact
+Contact:
 - Discord: gamerelk
