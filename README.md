@@ -1,4 +1,4 @@
-Hi, I’m @Gamerelk
+Hi, I’m Gamerelk
 This Repository Is Dedicated To My Work Coding In Mostly Minecraft Bedrock JavaScript (Js).
 There Are Two Take Away Things I Always Think You Should Know About Me:
 
