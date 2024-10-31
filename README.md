@@ -11,4 +11,4 @@ I Also Like Posting Custom Minecraft Templates Of My Addons As Well.
 Signing Out, Gamerelk
 
 Contact:
-- Discord: gamerelk
+- Discord: gamerelk (Or Discord Server: https://discord.gg/UaqN3852Qu)
